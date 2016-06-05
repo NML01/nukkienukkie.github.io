@@ -1,2 +1,0 @@
-# nukkienukkie.github.io
-memes
